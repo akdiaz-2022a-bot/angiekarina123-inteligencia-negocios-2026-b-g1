@@ -1,0 +1,1 @@
+# angiekarina123-inteligencia-negocios-2026-b-g1
